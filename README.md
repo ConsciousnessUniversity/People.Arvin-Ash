@@ -1,0 +1,2 @@
+# People.Arvin-Ash
+- [Is Free Will WRITTEN Within the Laws of Quantum Physics?](https://youtu.be/W1FmRCJCOkI)
